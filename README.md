@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sunymul..
+- 👋 Assalamualykum, I’m @Sunymul..
 - 👀 I’m interested in women...
 - 🌱 I’m currently learning C programming..
 - 📫 How to reach me : Fb: SH Sunny..
